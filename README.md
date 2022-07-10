@@ -1,4 +1,4 @@
-# Cosmos Picture 🤑💰​​
+# Cosmos Picture 🌍​​
 
 ## 👀 Como ficou ???
 
